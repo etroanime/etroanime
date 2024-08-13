@@ -1,0 +1,2 @@
+- hi im etro (he/she)
+- dont forget to sleep eat food n drink water!
